@@ -6,4 +6,4 @@ Consider including that I participated in inter-congregational events, but still
 
 - Longstanding efforts to find support-participation in international programs in the Congregation, leadership development opportunities, vocation promotion groups, etc. I've held out for long as I could.
 - The point immediately above is part of what means I've used to get to the point of asking for dispensation.
-- Long path leading up to the request for exclaustraton, let alone dispensation: Three retreats, regular spiritual direction, etc.
+- Long path leading up to the request for exclaustration, let alone dispensation: Three retreats, regular spiritual direction, etc.

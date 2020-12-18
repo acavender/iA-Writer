@@ -1,16 +1,12 @@
-<!-- Set forth in *brief* but *concrete* detail the *actual* reasons motivating your request. Vague reasons are not acceptable: for example, "I am not happy in community." "I find that I cannot live under any structures imposed on me from the outside." -->
-
-# Reasons
-
 Most Holy Father,
 
-I am writing to request dispensation from my vows in the Congregation of the Sisters of the Holy Cross. I have come to believe that I am being called to the single life, and that it is as a single person in the world that I can best love and serve others.
+I am writing to request dispensation from my vows in the Congregation of the Sisters of the Holy Cross. After a lengthy period of careful discernment, I have come to believe that I am being called to the single life, and that it is as a single person that I can best love and serve others.
 
-At the time I entered the Congregation, Holy Cross was an international community that was mission-sending. Though there were Sisters who served abroad for most of their lives, they were a small group. The large majority of Sisters remained in their home countries. I entered with the expectation that I would have some international experience, but would live and serve in the United States.
+When I entered the Congregation in 1999, Holy Cross was an international community that was mission-sending. There were Sisters who served abroad for most of their lives, but they were a small group; the large majority remained in their home countries. I entered with the expectation that I would have some international experience, but would live and serve in the United States.
 
-There were also, at that time, other women from the United States in the community who were reasonably close to my age. There were not huge numbers, but there were some, and there were even a few who followed me as candidates. I was never under any illusion that there would be many in my approximate age group and younger, but looking to the example of those slightly older than me in the Congregation and to my own experience of “Come and See” weekends and vocation groups, I had good reason to believe there would be a small but steady number entering.
+At that time, there were also other women from the United States in the community who were reasonably close to my age. There were not many, but there were some, and there were even a few who followed me as candidates. I was never under any illusion that there would be many in my approximate age group and younger, but looking to the example of those slightly older than me in the Congregation and to my own experience of “Come and See” weekends and vocation groups, I had good reason to believe there would be a small but steady number entering.
 
-The situation I now experience is vastly different. In the United States, there are now just three members of the Congregation under the age of sixty. There is no one from the United States under the age of forty. There is no one from the U.S. in formation, nor is there much interest in the Congregation on the part of younger American women.
+The situation I now experience is vastly different. In the United States, there are now only three members of the Congregation under the age of sixty. No one from the United States is under forty. There is no one from the U.S. in formation, nor is there much interest in the Congregation on the part of younger American women.
 
 Holy Cross is experiencing its new life outside the United States. As a result, it has changed in ways that are both necessary and healthy for its continued mission. There is clearly a future for the Congregation, and that pleases me very much. I do not, however, see a place for myself in that future.
 
@@ -36,6 +32,6 @@ When I picture myself in that uncertain future as a single person, however, I ex
 
 Reaching this conclusion has been far from easy, in no small part because I take commitments very seriously. This discernment process has been the focus of three of my yearly eight-day retreats. Two of those retreats were with a director who knows me well, as he has directed my annual retreat on multiple occasions since 2011. Outside of retreats, I have been discerning this request with my regular spiritual director, and I have sought the counsel of those who know me well.
 
-(A paragraph about my employments in the congreagion goes here.)
+(A paragraph about my employments in the congregation goes here.)
 
 (A reiteration of my request for dispensation goes here.)
