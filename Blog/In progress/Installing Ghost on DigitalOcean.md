@@ -1,0 +1,1 @@
+# Installing Ghost on DigitalOcean
