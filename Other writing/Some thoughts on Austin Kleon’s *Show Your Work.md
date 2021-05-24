@@ -1,0 +1,11 @@
+# Some thoughts on Austin Kleon’s *Show Your Work!* (for Ghost application)
+
+I recently read Austin Kleon’s *Show Your Work!*.  Two passages in particular stood out for me:
+
+“...if you want to be a writer, you have to be a reader first.” (Kindle edition, loc. 511)
+
+“The minute you learn something, turn around and teach it to others. Share your reading list. Point to helpful reference materials. Create some tutorials and post them online. Use pictures, words, and video. Take people step-by-step through part of your process. As blogger Kathy Sierra says, ‘Make people better at something they want to be better at.’” (Kindle edition, loc. 497)
+
+The first passage is something that I’ve long told my students. Yes, you learn to write by writing — but you also learn to write by *reading*. Reading widely not only enables you to learn new things, it gives you material to *think* about, and thus to *write* about. Reading also helps you develop a sense of how writing differs from one field to another, and to develop an ear for those differences. Novels are not legal documents, help documents are not dissertations, and philosophical treatises are not self-help books. How can you become an effective writer in a genre, if you don’t familiarize yourself with it through reading?
+
+The second passage is something I want to take to heart myself. I enjoy writing tutorials and creating tutorial videos, and they help those who choose to read or view them learn things that are useful to them, even as the process of creating them helps me solidify my own learning. Though the passage doesn’t explicitly say this, creating tutorial materials and making them public early in my process also invites feedback that can help me make the materials *better*. Perhaps something I wrote isn’t as clear as I thought it was, and I need to go back and clarify. Or maybe a service I’ve written about has changed (and I somehow missed that fact), so my work needs updating. Feedback can let me know — and I can’t get feedback if I don’t share my work.
