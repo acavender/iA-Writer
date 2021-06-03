@@ -1,1 +1,0 @@
-# Installing Ghost locally on an M1 Mac
